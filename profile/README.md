@@ -1,1 +1,1 @@
-![Banner_HD](https://user-images.githubusercontent.com/110448405/192740192-92e691bc-0977-49ab-9063-1fd1710b2e50.jpg)
+![HS_Banner_V003_WebFormat](https://user-images.githubusercontent.com/110448405/192814532-4b9cdad3-61cf-4739-b9fb-cda63138711b.jpg)
